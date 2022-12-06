@@ -1,1 +1,0 @@
-# misterwhopper.org
